@@ -12,5 +12,7 @@ High Pressure
 * Navy beans - 30 minutes
 * Great Northern beans - 35 minutes
 
+Let pressure naturally release over 20 minutes.
+
 ## References
 [amindfulmom.com](https://amindfullmom.com/instant-pot-beans/)
