@@ -1,4 +1,4 @@
-# Instant Pot Beans
+# Tomato Sauce
 ## Ingredients
 * 28 ounces of whole peeled tomatoes (San Marzano, if you can find them)
 * 5 tablespoons unsalted butter
