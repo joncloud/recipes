@@ -1,6 +1,6 @@
 # Creamy Chicken Dip
 ## Ingredients
-* 1 package of shredded rotisserie chicken (CostCo)
+* 1 package of shredded rotisserie chicken (Costco)
 * 16 oz cream cheese
 * 1/2 cup sour cream (add another 1/4 cup to make creamier)
 * 6 oz Franks red hot sauce (or enough to taste preference)
