@@ -1,7 +1,7 @@
 # Award Winning Soft Chocolate Chip Cookies
 ## Ingredients
 * 4.5 cups all-purpose flour
-* 2 (3.4 ounces) packages of instance butterscotch pudding mix
+* 2 (3.4 ounces) packages of instant butterscotch pudding mix
 * 2 teaspoons baking soda
 * 4 eggs
 * 2 cups butter, softened
