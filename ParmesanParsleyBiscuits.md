@@ -1,4 +1,4 @@
-# Parmesan Parsley Biscuits.md
+# Parmesan Parsley Biscuits
 
 ## Ingredients
 
