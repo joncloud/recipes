@@ -15,7 +15,7 @@
 ## Directions
 
 1. Preheat oven to 400F.
-2. Combine in a large bowl: 1/2 cup parmesan, sugar, baking powder, salt and pepper.
+2. Combine in a large bowl: 1/2 cup parmesan, flour, sugar, baking powder, salt and pepper.
 3. Whisk together until blended.
 4. Add butter, and combine with fingertips until a coarse meal forms.
 5. Mix in parsley.
