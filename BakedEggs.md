@@ -4,11 +4,13 @@
 
 Eggs can be prepped, and chilled overnight and baked the next morning.
 
+Recipe can be doubled in a 9 x 13 baking dish. Review baking time to be 40-50 minutes.
+
 ## Ingredients
 
 * Non stick cooking spray
 * 6 eggs
-* 120g all purpose flour
+* 60g all purpose flour
 * Milk
 * Salt
 * Pepper
